@@ -1,3 +1,5 @@
+<img width="1080" height="360" alt="596b2f17146169cdedb8a83237811ee9" src="https://github.com/user-attachments/assets/9d32885f-b608-40a2-b01f-a0de7c2b1b6c" />  
+   
 ## ⋆˚꩜｡𐔌՞. .՞𐦯⋆. 𐙚 ˚ Welcome to our profile! <3 𓂃˖ ࣪⊹
 
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢  
