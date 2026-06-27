@@ -29,7 +29,7 @@
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Extras.ᐟ  
 ᝰ.ᐟ AuDHD, DID/OSDD, BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward, Anxiety and Depression  
-········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs (w2i in Pony Town :3).  
+········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs.  
 𐔌 ﹒ ⋆ ······ Undiagnosed system of 350+, Hosts include Ace, Freddie, Quincy, Elaine and Avery.  
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Links to other socials.ᐟ  
