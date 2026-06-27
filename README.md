@@ -1,4 +1,4 @@
-<img width="750" height="250" alt="d047a19c5c7f0e159b895107836da07c" src="https://github.com/user-attachments/assets/eaacd1b0-21da-4767-babb-f0b9d3f69260" />  
+<img width="1800" height="360" alt="d047a19c5c7f0e159b895107836da07c" src="https://github.com/user-attachments/assets/eaacd1b0-21da-4767-babb-f0b9d3f69260" />  
 
    
 ## ⋆˚꩜｡𐔌՞. .՞𐦯⋆. 𐙚 ˚ Welcome to our profile! <3 𓂃˖ ࣪⊹
