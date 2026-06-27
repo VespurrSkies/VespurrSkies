@@ -9,7 +9,7 @@
  𓉸 ┇name(s): Vesper. Quincy, Ace, Skies  
 𐂯┇pronouns: They/It/He  
  𓉸 ┇age: 20 !!  
-𐂯┇ Taken or Single?: TAKEN BY THE LOVE OF OUR LIFE AND SWEETEST BOIY EVER!!!   
+𐂯┇ Taken or Single?: TAKEN BY THE LOVE OF OUR LIFE AND SWEETEST BOY EVER!!!   
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍   
 ╰─ ☆ my favorite...  
  𓉸 ┇color: Black, Red, White, Brown, Neutral Colors and Shades   
