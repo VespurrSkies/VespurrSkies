@@ -1,4 +1,5 @@
-<img width="1080" height="360" alt="596b2f17146169cdedb8a83237811ee9" src="https://github.com/user-attachments/assets/9d32885f-b608-40a2-b01f-a0de7c2b1b6c" />  
+<img width="750" height="250" alt="d047a19c5c7f0e159b895107836da07c" src="https://github.com/user-attachments/assets/eaacd1b0-21da-4767-babb-f0b9d3f69260" />  
+
    
 ## ⋆˚꩜｡𐔌՞. .՞𐦯⋆. 𐙚 ˚ Welcome to our profile! <3 𓂃˖ ࣪⊹
 
@@ -40,4 +41,4 @@
 ˗ˏˋ 𐔌 ﹒ ⋆ [Atabook](https://vespurrskies.atabook.org) ꩜ ⋆ 𓂃 ₊ ⊹  
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣&lt;3  
 
-<img width="1800" height="480" alt="kolyakolyakolyakolya" src="https://github.com/user-attachments/assets/6d0841e0-94a6-4bfd-ae37-41c2cdb5ec24" />
+<img width="1080" height="360" alt="596b2f17146169cdedb8a83237811ee9" src="https://github.com/user-attachments/assets/9d32885f-b608-40a2-b01f-a0de7c2b1b6c" />  
