@@ -28,11 +28,12 @@
  𓉸 ┇dm status: Open on Discord !! (crystallized_hope)  
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Extras.ᐟ  
-ᝰ.ᐟ AuDHD, DID, BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward, Anxiety and Depression  
+ᝰ.ᐟ AuDHD, DID/OSDD, BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward, Anxiety and Depression  
 ········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs (w2i in Pony Town :3). 
+𐔌 ﹒ ⋆ ······ Undiagnosed system of 350+, Hosts include Ace, Freddie, Quincy, Elaine and Avery.  
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Links to other socials.ᐟ  
-˗ˏˋ 𐔌 ﹒ ⋆ [Discord](https://discord.com/users/833165332658389022) ꩜ ⋆ 𓂃 ₊ ⊹  
+˗ˏˋ 𐔌 ﹒ ⋆ [Discord](https://discord.com/users/833165332658389022) Dms are open! ꩜ ⋆ 𓂃 ₊ ⊹  
 ˗ˏˋ 𐔌 ﹒ ⋆ [X/Twitter](https://x.com/VespurrSkies) ꩜ ⋆ 𓂃 ₊ ⊹  
 ˗ˏˋ 𐔌 ﹒ ⋆ [TikTok](https://www.tiktok.com/@vespurrskies) ꩜ ⋆ 𓂃 ₊ ⊹  
 ˗ˏˋ 𐔌 ﹒ ⋆ [Instagram](https://www.instagram.com/anonymous_skies403/) ꩜ ⋆ 𓂃 ₊ ⊹  
