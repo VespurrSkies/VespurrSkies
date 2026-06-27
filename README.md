@@ -30,7 +30,7 @@
 ╰─ ꩜ Extras.ᐟ  
 ᝰ.ᐟ AuDHD, DID/OSDD, BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward, Anxiety and Depression  
 ········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs.  
-𐔌 ﹒ ⋆ ······ Undiagnosed system of 350+, Hosts include Ace, Freddie, Quincy, Elaine and Avery.  
+𐔌 ﹒ ⋆ ······ Undiagnosed system of 350+, Hosts include Ace, Freddie, Quincy, Elaine and Avery. (CUSTOM INTRO LINKS COMING SOON)  
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Links to other socials.ᐟ  
 ˗ˏˋ 𐔌 ﹒ ⋆ [Discord](https://discord.com/users/833165332658389022) Dms are open! ꩜ ⋆ 𓂃 ₊ ⊹  
