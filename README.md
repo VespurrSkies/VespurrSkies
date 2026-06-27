@@ -29,12 +29,12 @@
 ········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs (w2i in Pony Town :3). 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Links to other socials.ᐟ  
-˗ˏˋ [Discord](https://discord.com/users/833165332658389022)  
-˗ˏˋ [X/Twitter](https://x.com/VespurrSkies)  
-˗ˏˋ [TikTok](https://www.tiktok.com/@vespurrskies)  
-˗ˏˋ [Instagram](https://www.instagram.com/anonymous_skies403/)  
-˗ˏˋ [Strawpage (WIP)](https://vespurrskies.straw.page)
-˗ˏˋ [Atabook](https://vespurrskies.atabook.org)  
+˗ˏˋ 𐔌 ﹒ ⋆ [Discord](https://discord.com/users/833165332658389022) ꩜ ⋆ 𓂃 ₊ ⊹  
+˗ˏˋ 𐔌 ﹒ ⋆ [X/Twitter](https://x.com/VespurrSkies) ꩜ ⋆ 𓂃 ₊ ⊹  
+˗ˏˋ 𐔌 ﹒ ⋆ [TikTok](https://www.tiktok.com/@vespurrskies) ꩜ ⋆ 𓂃 ₊ ⊹  
+˗ˏˋ 𐔌 ﹒ ⋆ [Instagram](https://www.instagram.com/anonymous_skies403/) ꩜ ⋆ 𓂃 ₊ ⊹  
+˗ˏˋ 𐔌 ﹒ ⋆ [Strawpage (WIP)](https://vespurrskies.straw.page) ꩜ ⋆ 𓂃 ₊ ⊹  
+˗ˏˋ 𐔌 ﹒ ⋆ [Atabook](https://vespurrskies.atabook.org) ꩜ ⋆ 𓂃 ₊ ⊹  
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣&lt;3  
 
 <img width="498" height="200" alt="kolyakolyakolyakolya" src="https://github.com/user-attachments/assets/6d0841e0-94a6-4bfd-ae37-41c2cdb5ec24" />
