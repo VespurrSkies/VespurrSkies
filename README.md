@@ -18,7 +18,7 @@
  𓉸 ┇games: Minecraft, Roblox, Pony Town, Sims 4, FNAF, Still Wakes The Deep, Little Nightmares, At the Dead of Night +More !!  
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ interests & more.ᐟ  
- 𓉸 ┇likes: Reading and Drawing, World Building, Character Creation, Gaming (See above!!), bracelet making, Monster, TFC, Forsaken, Our OCs, Writing, Sleep (*´▽`*)  
+ 𓉸 ┇likes: Reading and Drawing, World Building, Character Creation, Gaming (See above!!), Bracelet Making, Monster, TFC, Forsaken, Our OCs, Writing, Sleep (*´▽`*)  
 𐂯┇dislikes: Biggots, Misogynists, Homophobs and Transphobs, Arguing and Yelling, Fakeclaimers, Ablists, Proshippers and Darkshippers, People that dont take the hint :)  
  𓉸 ┇birthday: May 19th  
 𐂯┇timezone: CST  
@@ -26,7 +26,15 @@
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Extras.ᐟ  
 ᝰ.ᐟ AuDHD, DID, BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward, Anxiety and Depression  
-········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs (w2i in Pony Town :3).  
+········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs (w2i in Pony Town :3). 
+﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
+╰─ ꩜ Links to other socials.ᐟ  
+˗ˏˋ [Discord](https://discord.com/users/833165332658389022)  
+˗ˏˋ [X/Twitter](https://x.com/VespurrSkies)  
+˗ˏˋ [TikTok](https://www.tiktok.com/@vespurrskies)  
+˗ˏˋ [Instagram](https://www.instagram.com/anonymous_skies403/)  
+˗ˏˋ [Strawpage (WIP)](https://vespurrskies.straw.page)
+˗ˏˋ [Atabook](https://vespurrskies.atabook.org)  
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣&lt;3  
 
 <img width="498" height="200" alt="kolyakolyakolyakolya" src="https://github.com/user-attachments/assets/6d0841e0-94a6-4bfd-ae37-41c2cdb5ec24" />
