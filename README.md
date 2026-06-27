@@ -22,7 +22,7 @@
 𐂯┇dislikes: Biggots, Misogynists, Homophobs and Transphobs, Arguing and Yelling, Fakeclaimers, Ablists, Proshippers and Darkshippers, People that dont take the hint :)  
  𓉸 ┇birthday: May 19th  
 𐂯┇timezone: CST  
- 𓉸 ┇dm status: Open on Discord !! (crystallizedhope)  
+ 𓉸 ┇dm status: Open on Discord !! (crystallized_hope)  
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Extras.ᐟ  
 ᝰ.ᐟ AuDHD, DID, BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward, Anxiety and Depression  
