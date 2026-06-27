@@ -38,7 +38,7 @@
 ˗ˏˋ 𐔌 ﹒ ⋆ [TikTok](https://www.tiktok.com/@vespurrskies) ꩜ ⋆ 𓂃 ₊ ⊹  
 ˗ˏˋ 𐔌 ﹒ ⋆ [Instagram](https://www.instagram.com/anonymous_skies403/) ꩜ ⋆ 𓂃 ₊ ⊹  
 ˗ˏˋ 𐔌 ﹒ ⋆ [Pintrest](https://www.pinterest.com/VespurrSkies/_profile/) ꩜ ⋆ 𓂃 ₊ ⊹  
-˗ˏˋ 𐔌 ﹒ ⋆ [Carrd](https://vespurrskies.carrd.co) ꩜ ⋆ 𓂃 ₊ ⊹  
+˗ˏˋ 𐔌 ﹒ ⋆ [Carrd (WIP)](https://vespurrskies.carrd.co) ꩜ ⋆ 𓂃 ₊ ⊹  
 ˗ˏˋ 𐔌 ﹒ ⋆ [Strawpage (WIP)](https://vespurrskies.straw.page) ꩜ ⋆ 𓂃 ₊ ⊹  
 ˗ˏˋ 𐔌 ﹒ ⋆ [Atabook](https://vespurrskies.atabook.org) ꩜ ⋆ 𓂃 ₊ ⊹  
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣&lt;3  
