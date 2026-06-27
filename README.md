@@ -40,4 +40,4 @@
 ˗ˏˋ 𐔌 ﹒ ⋆ [Atabook](https://vespurrskies.atabook.org) ꩜ ⋆ 𓂃 ₊ ⊹  
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣&lt;3  
 
-<img width="1800" height="360" alt="kolyakolyakolyakolya" src="https://github.com/user-attachments/assets/6d0841e0-94a6-4bfd-ae37-41c2cdb5ec24" />
+<img width="1800" height="480" alt="kolyakolyakolyakolya" src="https://github.com/user-attachments/assets/6d0841e0-94a6-4bfd-ae37-41c2cdb5ec24" />
