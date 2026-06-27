@@ -15,7 +15,7 @@
  𓉸 ┇color: Black, Red, White, Brown, Neutral Colors and Shades   
 𐂯┇animal: Ducks and Dogs (Esp Aussie Shepards) <3  
  𓉸 ┇songs: Too many to count. . . 𐔌՞. .՞｡𐦯  
- 𓉸 ┇games: Minecraft, Roblox, Pony Town, Sims 4,  Still Wakes The Deep, Little Nightmares, At the Dead of Night +More !!  
+ 𓉸 ┇games: Minecraft, Roblox, Pony Town, Sims 4, FNAF, Still Wakes The Deep, Little Nightmares, At the Dead of Night +More !!  
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ interests & more.ᐟ  
  𓉸 ┇likes: Reading and Drawing, World Building, Character Creation, Gaming (See above!!), bracelet making, Monster, TFC, Forsaken, Our OCs, Writing, Sleep (*´▽`*)  
