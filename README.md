@@ -3,6 +3,8 @@
    
 ## ⋆˚꩜｡𐔌՞. .՞𐦯⋆. 𐙚 ˚ Welcome to our profile! <3 𓂃˖ ࣪⊹
 
+*PSST!! If you're here from Pony Town feel free to [click here](https://github.com/VespurrSkies/Pony-Town-Stuff-P/blob/db39424baf7b930ad7488813239e56af2b99bb01/README.md)!!*
+  
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢  
     ﹉﹉﹉﹉﹉˗ˏˋ𐂯ˎˊ˗﹉﹉﹉﹉﹉  
 ······· ╱| ╱| ········  
