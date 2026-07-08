@@ -33,7 +33,7 @@
 ᝰ.ᐟ AuDHD, DID/OSDD, BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward, Anxiety and Depression  
 ········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs.  
 𐔌 ﹒ ⋆ ······ Undiagnosed system of 350+, Hosts include [Ace](https://github.com/VespurrSkies/AcesIntro), [Freddie](https://freddies-intro.carrd.co), [Quincy](https://quincy-intro.carrd.co), Elaine and Avery. (CUSTOM INTRO LINKS COMING SOON)  
-ᝰ.ᐟ﹒ ⋆ ·········· HEAVY Bodily 007n7, Two Time, Taph and more kinnie (CUSTOM KIN INTROS SOON FOR WHEN KINNING HEAVILY)  
+ᝰ.ᐟ﹒ ⋆ ·········· HEAVY Bodily [007n7](https://github.com/allurbasebelongtomenow), Two Time, Taph and more kinnie (CUSTOM KIN INTROS SOON FOR WHEN KINNING HEAVILY)  
 ╰─ ⋆ *Kinnie doubles are fine as long as you're not weird.* ***(9/10 times will be alters of said kins but sometimes bodily we feel it heavy.)***    
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Links to other socials.ᐟ  
