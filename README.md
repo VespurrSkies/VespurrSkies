@@ -30,7 +30,7 @@
  𓉸 ┇dm status: Open on Discord !! (crystallized_hope)  
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍  
 ╰─ ꩜ Extras.ᐟ  
-ᝰ.ᐟ AuDHD, DID/OSDD, BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward, Anxiety and Depression  
+ᝰ.ᐟ Diagnosed AuDHD, Anxiety and Depression, Medically Reconized DID/OSDD, Questioning BPD, OCD, PTSD, Agoraphobic and Socially Anxious/Awkward  
 ········ Very quiet about 90% of the time, and will almost never reach out first. Prefered contact technique is PMs and DMs.  
 𐔌 ﹒ ⋆ ······ Undiagnosed system of 350+, Hosts include [Ace](https://github.com/VespurrSkies/AcesIntro), [Freddie](https://freddies-intro.carrd.co), [Quincy](https://quincy-intro.carrd.co), Elaine and Avery. (CUSTOM INTRO LINKS COMING SOON)  
 ᝰ.ᐟ﹒ ⋆ ·········· HEAVY Bodily [007n7](https://github.com/c00lgui-exe), Two Time, Taph and more kinnie (CUSTOM KIN INTROS SOON FOR WHEN KINNING HEAVILY)  
